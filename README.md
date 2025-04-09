@@ -1,2 +1,0 @@
-# vedantdadurwade.github.io
-#Portfolio
